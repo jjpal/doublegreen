@@ -3,8 +3,8 @@
 Compiled list of resources for DIY products with the goal to generate a bit less waste 🌏
 
 
-#### [Make These 69 DIY Cleaning Products For Pennies](https://www.popsugar.com/smart-living/diy-cleaning-products-28901279)
-A few from the list
+#### - [Make These 69 DIY Cleaning Products For Pennies](https://www.popsugar.com/smart-living/diy-cleaning-products-28901279)
+A few products from the list above
 
 * [Clean Machine: Homemade Natural Liquid Laundry Detergent](https://www.popsugar.com/smart-living/homemade-liquid-laundry-detergent-28441787)
 * [A Nontoxic and Homemade Bleach? Yes, Please!](https://www.popsugar.com/smart-living/homemade-bleach-33384870)
