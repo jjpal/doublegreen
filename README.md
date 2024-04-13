@@ -1,6 +1,6 @@
 # doublegreen
 
-Compiled list of resources for DIY products with the goal to generate a bit less waste 🌏
+Compiled list of resources for DIY products with the goal to generate less waste 🌏 and save a a bit money 💵
 
 
 #### - [Make These 69 DIY Cleaning Products For Pennies](https://www.popsugar.com/smart-living/diy-cleaning-products-28901279)
@@ -14,3 +14,5 @@ A few products from the list above
 * [Make Your Own: Natural Homemade Window Cleaner](https://www.popsugar.com/smart-living/homemade-window-cleaner-28139073)
 * [You'll Love This Homemade Fabric Softener](https://www.popsugar.com/smart-living/homemade-fabric-softener-26948809)
 
+#### - [Non-Toxic Home Cleaning](https://learn.eartheasy.com/guides/non-toxic-home-cleaning/)
+Includes: What’s in your cleaning products?, Safe ingredients for homemade substitutions, Homemade cleaning products 
