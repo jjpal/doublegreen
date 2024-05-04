@@ -16,3 +16,12 @@ A few products from the list above
 
 #### - [Non-Toxic Home Cleaning](https://learn.eartheasy.com/guides/non-toxic-home-cleaning/)
 Includes: What’s in your cleaning products?, Safe ingredients for homemade substitutions, Homemade cleaning products 
+
+#### - [Almost Zero Waste](https://www.almostzerowaste.com/)
+* [Easy DIY Mosquito Repellent With Vinegar & Essential Oils](https://www.almostzerowaste.com/diy-mosquito-repellent-with-vinegar/)
+* [How To Make Air Freshener with Essential Oils And Baking Soda](https://www.almostzerowaste.com/air-freshener-with-essential-oils/)
+* [DIY Dry Shampoo For Blonde & Dark Hair: 3 Natural Ways (2024)](https://www.almostzerowaste.com/dry-shampoo-recipes/)
+* [How to Make Aloe Vera Mouthwash](https://www.almostzerowaste.com/diy-aloe-vera-mouthwash/)
+
+
+
